@@ -155,7 +155,7 @@ Provide statistics like the number of articles per category, daily updates, or s
 ## Support
 
 If you encounter any isuues or have questions:
-mail to:`akshayadarmayagari@gmail.com`
-contact:`9100034402`
+mail to:`ashwithadarmayagari@gmail.com`
+contact:`8179465925`
 
 
